@@ -2,7 +2,7 @@
 - 👀 I’m interested in diving into various realms of knowledge and discovering the beauty of continuous learning.
 - 🌱 I’m currently learning nurturing my skills and expanding my horizons in Web Development.
 - 💞️I’m excited about the prospect of collaborating on innovative projects that inspire growth and creativity.
-- 📫 How to reach me Let's connect! Reach me at kesireddynandhini99@gmail.com.
+- 📫 Let's connect! Reach me at kesireddynandhini99@gmail.com.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
 
